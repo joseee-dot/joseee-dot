@@ -9,7 +9,7 @@
 </h1>
 
 <h3 align="center">
-  🎨 Web Developer • 🎮 Indie Game Developer • ✨ Creative Builder
+  🎨 Web Developer • 🎮 Aspiring Game Developer • ✨ Creative Builder
 </h3>
 
 <p align="center">
