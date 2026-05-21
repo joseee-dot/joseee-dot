@@ -123,7 +123,7 @@ Currently focused on improving my skills in:
 
 # 🎯 Favorite Quote
 
-> *"Creativity is intelligence having fun."* — Albert Einstein
+> *"Hobbies are the love letters you write to yourself."*
 
 ---
 
